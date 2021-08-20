@@ -1,1 +1,1 @@
-Scrypt Proof of Work
+POW Cryptocuurency 2 change the world
